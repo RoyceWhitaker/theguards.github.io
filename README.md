@@ -1,3 +1,3 @@
-# [theguards.net](http://theguards.net/)
+# [TheGuards.net](http://theguards.net/)
 
 ## Gaming group!
